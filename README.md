@@ -1,1 +1,2 @@
-# bscs2a
+# JULIA ROSE ARENAS
+# BSCS 2A
